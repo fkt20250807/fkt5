@@ -10,4 +10,4 @@
 
 每日更新精品资源，平台汇聚各类高清影视内容，满足多样化观众需求。无论是无码专区还是中文字幕版本，均可畅快观看。分类齐全，涵盖剧情、制服、角色扮演等热门主题，搜索快捷方便。无须注册，无广告干扰，带来极致流畅的观影体验。更有热播榜和网友推荐，助你发现优质佳作，提高满意度。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250807 ）</span>
